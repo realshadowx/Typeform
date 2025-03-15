@@ -10,7 +10,8 @@ We’ve got the scoop on exclusive [Typeform coupon codes for 2025](https://www.
 
 Get 79% discount on Typeform using this coupon code on your plan. This is a limited-time offer, claim it now.
 
-[![|602x135](https://lh7-rt.googleusercontent.com/docsz/AD_4nXc0zY_IMxTzQEeTJrwl2T5QEzJ3ivjUt6WnhbKXWcufDftbTGu1wnCN82QTxWUcnaey-mIp1EwkrrfRaLatzVwKIRBqcgDqQ9-CARf9OlnKdMWtKx4iEyw2UcBkMfRMEsQITKacIQ?key=WCEOCoOfDFYS9lzFS0bKW5Um)](https://www.typeform.com/)
+[![Discount button](https://github.com/user-attachments/assets/151965aa-439b-4b21-b85a-bfdb0b362b56)](https://www.typeform.com/)
+
 
 ## Latest Coupon Codes
 
@@ -40,7 +41,7 @@ Here’s are the latest Typeform coupon codes for 2025. Get ready to score unbea
 * Expiry Date: No expiration—available year-round!
 * How to Use the Code: Apply EXTRA14 during sign-up to get your extended trial.
 
-[![|602x135](https://lh7-rt.googleusercontent.com/docsz/AD_4nXc0zY_IMxTzQEeTJrwl2T5QEzJ3ivjUt6WnhbKXWcufDftbTGu1wnCN82QTxWUcnaey-mIp1EwkrrfRaLatzVwKIRBqcgDqQ9-CARf9OlnKdMWtKx4iEyw2UcBkMfRMEsQITKacIQ?key=WCEOCoOfDFYS9lzFS0bKW5Um)](https://www.typeform.com/)
+[![Discount button](https://github.com/user-attachments/assets/151965aa-439b-4b21-b85a-bfdb0b362b56)](https://www.typeform.com/)
 
 ## How to Redeem Typeform Coupon Codes?
 
@@ -53,7 +54,7 @@ Redeeming your Typeform coupon code is super easy! Just follow these simple step
 
 That’s it! In just a few simple steps, you’ll have Typeform at a fraction of the price.
 
-[![|602x135](https://lh7-rt.googleusercontent.com/docsz/AD_4nXc0zY_IMxTzQEeTJrwl2T5QEzJ3ivjUt6WnhbKXWcufDftbTGu1wnCN82QTxWUcnaey-mIp1EwkrrfRaLatzVwKIRBqcgDqQ9-CARf9OlnKdMWtKx4iEyw2UcBkMfRMEsQITKacIQ?key=WCEOCoOfDFYS9lzFS0bKW5Um)](https://www.typeform.com/)
+[![Discount button](https://github.com/user-attachments/assets/151965aa-439b-4b21-b85a-bfdb0b362b56)](https://www.typeform.com/)
 
 ## Pricing Information
 
@@ -70,7 +71,7 @@ With the 79% Student Discount, students can save up to $66 per month on the Prof
 
 If you’re a new customer, the 50% Off New Sign-Ups offer can help you save $25 on your first month of the Professional Plan.
 
-[![|602x135](https://lh7-rt.googleusercontent.com/docsz/AD_4nXc0zY_IMxTzQEeTJrwl2T5QEzJ3ivjUt6WnhbKXWcufDftbTGu1wnCN82QTxWUcnaey-mIp1EwkrrfRaLatzVwKIRBqcgDqQ9-CARf9OlnKdMWtKx4iEyw2UcBkMfRMEsQITKacIQ?key=WCEOCoOfDFYS9lzFS0bKW5Um)](https://www.typeform.com/)
+[![Discount button](https://github.com/user-attachments/assets/151965aa-439b-4b21-b85a-bfdb0b362b56)](https://www.typeform.com/)
 
 ## About Typeform
 
