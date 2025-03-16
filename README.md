@@ -4,13 +4,13 @@ Hello folks, Amir here.
 
 Looking to unlock big savings on Typeform, one of the most popular survey tools around? You’re in luck!
 
-We’ve got the scoop on exclusive [Typeform coupon codes for 2025](https://www.typeform.com/), including a massive 79% discount for students.
+We’ve got the scoop on exclusive [Typeform coupon codes for 2025](https://typeform.cello.so/zrGdicGsnbj), including a massive 79% discount for students.
 
 ## Typeform Coupon 79% Off
 
 Get 79% discount on Typeform using this coupon code on your plan. This is a limited-time offer, claim it now.
 
-[![Discount button](https://github.com/user-attachments/assets/151965aa-439b-4b21-b85a-bfdb0b362b56)](https://www.typeform.com/)
+[![Discount button](https://github.com/user-attachments/assets/151965aa-439b-4b21-b85a-bfdb0b362b56)](https://typeform.cello.so/zrGdicGsnbj)
 
 
 ## Latest Coupon Codes
@@ -41,7 +41,7 @@ Here’s are the latest Typeform coupon codes for 2025. Get ready to score unbea
 * Expiry Date: No expiration—available year-round!
 * How to Use the Code: Apply EXTRA14 during sign-up to get your extended trial.
 
-[![Discount button](https://github.com/user-attachments/assets/151965aa-439b-4b21-b85a-bfdb0b362b56)](https://www.typeform.com/)
+[![Discount button](https://github.com/user-attachments/assets/151965aa-439b-4b21-b85a-bfdb0b362b56)](https://typeform.cello.so/zrGdicGsnbj)
 
 ## How to Redeem Typeform Coupon Codes?
 
@@ -54,7 +54,7 @@ Redeeming your Typeform coupon code is super easy! Just follow these simple step
 
 That’s it! In just a few simple steps, you’ll have Typeform at a fraction of the price.
 
-[![Discount button](https://github.com/user-attachments/assets/151965aa-439b-4b21-b85a-bfdb0b362b56)](https://www.typeform.com/)
+[![Discount button](https://github.com/user-attachments/assets/151965aa-439b-4b21-b85a-bfdb0b362b56)](https://typeform.cello.so/zrGdicGsnbj)
 
 ## Pricing Information
 
@@ -71,7 +71,7 @@ With the 79% Student Discount, students can save up to $66 per month on the Prof
 
 If you’re a new customer, the 50% Off New Sign-Ups offer can help you save $25 on your first month of the Professional Plan.
 
-[![Discount button](https://github.com/user-attachments/assets/151965aa-439b-4b21-b85a-bfdb0b362b56)](https://www.typeform.com/)
+[![Discount button](https://github.com/user-attachments/assets/151965aa-439b-4b21-b85a-bfdb0b362b56)](https://typeform.cello.so/zrGdicGsnbj)
 
 ## About Typeform
 
