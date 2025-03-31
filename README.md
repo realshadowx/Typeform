@@ -6,14 +6,14 @@ Looking to unlock big savings on Typeform, one of the most popular survey tools 
 
 We’ve got the scoop on exclusive [Typeform coupon codes for 2025](https://typeform.cello.so/zrGdicGsnbj), including a massive 79% discount for students.
 
-## Typeform Coupon 79% Off
+## Typeform Discount Code For 79% Off
 
 Get 79% discount on Typeform using this coupon code on your plan. This is a limited-time offer, claim it now.
 
 [![Discount button](https://github.com/user-attachments/assets/151965aa-439b-4b21-b85a-bfdb0b362b56)](https://typeform.cello.so/zrGdicGsnbj)
 
 
-## Latest Coupon Codes
+## Latest Typeform Coupon Codes
 
 Here’s are the latest Typeform coupon codes for 2025. Get ready to score unbeatable deals on your subscription!
 
