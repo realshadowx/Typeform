@@ -43,7 +43,7 @@ Here’s are the latest Typeform coupon codes for 2025. Get ready to score unbea
 
 [![Discount button](https://github.com/user-attachments/assets/151965aa-439b-4b21-b85a-bfdb0b362b56)](https://typeform.cello.so/zrGdicGsnbj)
 
-## How to Redeem Typeform Coupon Codes?
+## How to Redeem Typeform Coupon?
 
 Redeeming your Typeform coupon code is super easy! Just follow these simple steps to start saving:
 
