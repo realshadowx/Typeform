@@ -1,4 +1,4 @@
-# Typeform Coupon Code 2025 - Claim 79% Student Discount 🔥
+# Typeform Discount Code (April 2025) Claim 50% Off Coupon
 
 Hello folks, Amir here.
 
