@@ -8,6 +8,8 @@ Looking to unlock big savings on Typeform, one of the most popular survey tools 
 
 We’ve got the scoop on exclusive [Typeform coupon codes for 2025](https://typeform.cello.so/zrGdicGsnbj), including a massive 79% discount for students.
 
+[![typeform discount plans](https://github.com/user-attachments/assets/46aed783-8c04-449b-ae4a-60677d47120d)](https://typeform.cello.so/zrGdicGsnbj)
+
 ## Save 20% on Typeform Basic Plan
 
 Enjoy a 20% discount on the Basic plan. This plan includes 100 responses per month, unlimited typeforms, and one user seat. Offer valid until April 30, 2025. Start creating interactive forms today!​
